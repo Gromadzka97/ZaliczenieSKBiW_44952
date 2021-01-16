@@ -1,1 +1,1 @@
-# ZaliczenieSKBiW_44952
+Firt name and last name: Paulina G.
